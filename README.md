@@ -6,3 +6,7 @@ https://www.figma.com/file/fwNjYPX0FPwis6sUVdJwQS/Piazza?node-id=0%3A1
 
 Documentation Here
 https://drive.google.com/drive/folders/1hbaz1ixA8DAR4Kjwj6NVYKAdGB1mx-Fv?usp=sharing
+
+
+
+I had done some minor edits in the "new" one. Also, I used grammarly on the document.
